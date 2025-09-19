@@ -59,7 +59,7 @@ Masline stands apart from competitors due to its unique combination of trust, ex
 ---
 
 ## Transactional Value
-Choosing Masline means more than just purchasing components—it means securing a **supply chain partner** who ensures projects stay on time and within budget.  
+Choosing Masline means more than just purchasing components it means securing a **supply chain partner** who ensures projects stay on time and within budget.  
 
 - **Procurement Teams**: Benefit from bulk discounts and secure sourcing.  
 - **Engineers**: Access authentic components and technical guidance.  
